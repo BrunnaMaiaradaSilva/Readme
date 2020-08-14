@@ -2,6 +2,8 @@
 
 ## Mises
 
+![ludwig-von-mises-660x372](https://user-images.githubusercontent.com/45864414/90201896-8d22b280-ddb2-11ea-8519-93a8cbac8d8c.jpg)
+
 * Diz uma frase famosa, muito citada: "O melhor governo é o que menos governa". Esta não me parece uma caracterização adequada das funções de um bom governo.  Compete a ele fazer todas as coisas para as quais ele é necessário e para as quais foi instituído.  Tem o dever de proteger as pessoas dentro do país contra as investidas violentas e fraudulentas de bandidos, bem como de defender o país contra inimigos externos.  São estas as funções do governo num sistema livre, no sistema da economia de mercado.
 
 No socialismo, obviamente, o governo é totalitário, nada escapando à sua esfera e sua jurisdição.  Mas na economia de mercado, a principal incumbência do governo é proteger o funcionamento harmônico desta economia contra a fraude ou a violência originadas dentro ou fora do país.  Os que discordam desta definição das funções do governo poderão dizer: "Este homem abomina o governo". Nada poderia estar mais longe da verdade.  Se digo que a gasolina é um liquido de grande serventia, útil para muitos propósitos, mas que, não obstante, eu não a beberia, por não me parecer esse o uso próprio para o produto, não me converto por isso num inimigo da gasolina, nem se poderia dizer que odeio a gasolina.  Digo apenas que ela é muito útil para determinados fins, mas inadequada para outros.  Se digo que é dever do governo prender assassinos e demais criminosos, mas que não é seu dever abrir estradas ou gastar dinheiro em inutilidades, não quer dizer que eu odeie o governo apenas por afirmar que ele está qualificado para fazer determinadas coisas, mas não o está para outras.
